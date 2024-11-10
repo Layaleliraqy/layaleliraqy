@@ -4,7 +4,7 @@ Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-912
 Student
 -------
 
-I am 14 years old. I am in Wise international school. In grade 10. I have multiple hobbies like, reading fantasy and crime books, listening to music and I like hanging out with my friends and family. When I graduate from school, I would like to go to the GUC. I would love to be an Engineer.
+I am 14 years old. I am in Wise international school. In grade 9. I have multiple hobbies like, reading fantasy and crime books, listening to music and I like hanging out with my friends and family. When I graduate from school, I would like to go to the GUC. I would love to be an Engineer.
 
 ### Skills
 
